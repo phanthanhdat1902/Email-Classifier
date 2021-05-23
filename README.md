@@ -44,7 +44,6 @@ team to help you find the plan that is right for you.
 If you would like more information please email
 surefiremarketing@btamail.net.cn?subject=healthinsurance
 with "Send me health insurance info" in the body of the email
-***************************************************************
 If you do not wish to correspond with us, reply to 
 surefiremarketing@btamail.net.cn  with remove as your subject. '''
 
